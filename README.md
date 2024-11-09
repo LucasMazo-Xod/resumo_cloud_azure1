@@ -1,0 +1,1 @@
+# resumo_cloud_azure1
